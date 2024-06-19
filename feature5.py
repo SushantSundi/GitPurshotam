@@ -1,5 +1,3 @@
 dhbhbvrwr
 kjvireibreub
-
-fenkjrnblkrwnlhnjl
 vknkjnejbnetjnj
